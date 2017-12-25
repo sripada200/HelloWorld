@@ -1,6 +1,7 @@
-# HelloWorld
-this is the first hello world program to check the github
-this is the second hello world program to check the github
-this is third hello worldd program
+HELLO! STORY: Avinash/Seenu (Akhil) is a street urchin brought up by his loving adoptive parents Saru (Ramya Krishnan) and Prakash (Jagapathi Babu). The love of his life is the girl he meets during childhood Junnu/Priya (Kalyani), whom fate had snatched away from him. Fourteen long years and they still wait for the day they will meet again. Will destiny help them?
 
-This is the fourth hello world test..
+HELLO! REVIEW: Shah Rukh Khan once said in his hit film 'Om Shanti Om' - Kehte hain agar kisi cheez ko dil se chaho ... to puri kainaat usse tumse milane ki koshish mein lag jaati hai. And 'Hello' is a magical case study on the same; how the whole universe conspires to bring two people together when they're meant to be.
+
+Avinash/Seenu (Akhil) meets Junnu/Priya (Kalyani) during childhood and their love is simple and pure. He loves how her bangles jingle when she eats paani puri, the bells on her anklets make a sound as she runs and most importantly, he loves her quirky nature. She loves the fact that he has a golden heart and how he makes up a tune especially for her when she asks. When Junnu's father is transferred to Delhi, fate cruelly separates them, but as if in penance, it also brings his adoptive parents into his life. Fourteen long years and they're both still in search of each other. If they ever find each other or not, is what 'Hello' is all about.
+
+'Hello' is a film filled with beauty - be it the actors, visuals, love track or even the screenplay. Surprisingly, such care has been given to every minute detail that it makes the film all the more stunning. Though it's a little hard to believe that tree-climbing Seenu grows up to become a parkour expert Avinash, let's just give him the benefit of doubt, because otherwise, Akhil is simply a delight to watch on screen. One can clearly see the enjoyment on his face when he dances and his smile is simply illuminating. When on screen, he is no longer the Akkineni prince, but Seenu, desperate to meet his lady love.
