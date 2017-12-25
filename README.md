@@ -1,3 +1,4 @@
+Hello Review from TimesofIndia
 HELLO! STORY: Avinash/Seenu (Akhil) is a street urchin brought up by his loving adoptive parents Saru (Ramya Krishnan) and Prakash (Jagapathi Babu). The love of his life is the girl he meets during childhood Junnu/Priya (Kalyani), whom fate had snatched away from him. Fourteen long years and they still wait for the day they will meet again. Will destiny help them?
 
 HELLO! REVIEW: Shah Rukh Khan once said in his hit film 'Om Shanti Om' - Kehte hain agar kisi cheez ko dil se chaho ... to puri kainaat usse tumse milane ki koshish mein lag jaati hai. And 'Hello' is a magical case study on the same; how the whole universe conspires to bring two people together when they're meant to be.
